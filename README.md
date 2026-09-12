@@ -1,4 +1,4 @@
-# 👋 Hey, I'm Anamta Siddiqui!
+# 👋 Hey, I'm Anamta !
 
 🎓 Computer Engineering Student | 🤖 AI/ML Enthusiast | 📊 Data & Analytics
 
